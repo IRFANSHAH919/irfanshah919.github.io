@@ -22,9 +22,14 @@ Irfan is a Political Enthusiast, an Aesthete, a Feminist and a Realist.
 
 _LinkedIn_ - [Irfan](https://www.linkedin.com/in/irfan-shah-4729871bb)
 
--Instagram
--Facebook
--LinkedIn
--Snapchat
--Quora
--Reddit
+_Instagram_ - [Irfan](https://www.instagram.com/_Is919_)
+
+_Facebook_ - [Irfan](https://www.facebook.com/irfanshah.is919)
+
+_Quora_ - [Irfan](https://www.quora.com/profile/M-Irfan-Shah-1?ch=10&share=79a25ac8&srid=uLiZKf)
+
+_Snapchat_ - [Irfan](https://www.snapchat.com/add/irfanshah-is919)
+
+_Twitter_ - [Irfan](https://twitter.com/_IS919)
+
+_Reddit_ - [Irfan](https://www.reddit.com/u/IS919?utm_medium=android_app&utm_source=share)
