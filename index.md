@@ -32,7 +32,7 @@ _Quora_ - [Irfan](https://www.quora.com/profile/M-Irfan-Shah-1?ch=10&share=79a25
 
 _Snapchat_ - [Irfan](https://www.snapchat.com/add/irfanshah-is919)
 
-_Twitter_ - [Irfan](https://twitter.com/_IS919)
+_Twitter_ - [Irfan](https://twitter.com/_IS919) 
 
 _Reddit_ - [Irfan](https://www.reddit.com/u/IS919?utm_medium=android_app&utm_source=share)
 
