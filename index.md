@@ -5,7 +5,7 @@ This is Muhammad Irfan Shah, a budding civil Engineer. He is ambitious, adventur
 ## A Cinephile and A Melomaniac
 Irfan will choose to watch a movie over everything. From Hollywood to Iranian Cinema, silent era to CGI, shorts to 6 hour longs, Western to Thriller, low budget to big budget, he loves them all. No movie is good or bad, it’s just a matter of taste!
 
-![](https://drive.google.com/file/d/1GgzwcfpoMVSrTitvEO05i_8zeUYc9AvN/view)
+![](https://pbs.twimg.com/profile_images/1370059710955618312/OGOhQk0W_400x400.jpg)
 
 Irfan has two strict rules, “Whoever says that The Shawshank Redemption is the greatest movie of all time, he doesn’t talk movies with them.” The other rule, he doesn’t talk about it.
 
