@@ -20,7 +20,7 @@ Irfan is a Political Enthusiast, an Aesthete, a Feminist and a Realist.
 
 ## Contact
 
--Twitter [Irfan]('https://instagram.com/_Is919_')
+_LinkedIn_ - [Irfan](https://www.linkedin.com/in/irfan-shah-4729871bb)
 
 -Instagram
 -Facebook
