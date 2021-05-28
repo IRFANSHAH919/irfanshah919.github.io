@@ -33,3 +33,5 @@ _Snapchat_ - [Irfan](https://www.snapchat.com/add/irfanshah-is919)
 _Twitter_ - [Irfan](https://twitter.com/_IS919)
 
 _Reddit_ - [Irfan](https://www.reddit.com/u/IS919?utm_medium=android_app&utm_source=share)
+
+_mail_ - **muhammodirfanshah@gmail.com**
